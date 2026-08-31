@@ -1,4 +1,4 @@
-# VaultEdge – Financial & Loan Services Website Template
+# Value Pocket– Financial & Loan Services Website Template
 
 #### Preview
 
